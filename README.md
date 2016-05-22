@@ -25,6 +25,7 @@ These studios exhibit generosity in heart and hand, work on projects that matter
 * Heart Giants - http://heartgiants.com
 * Hyperakt - http://hyperakt.com
 * kad - http://kad.com
+* Latte Creative - http://www.lattecreative.com
 * Made by We - http://madebywe.org
 * Matchstick - http://matchstic.com
 * MINE - http://minesf.com
